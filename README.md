@@ -1,1 +1,1 @@
-aplikacja kolekcjonerska
+
